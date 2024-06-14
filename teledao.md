@@ -1,10 +1,8 @@
 - 👋 Hi, I’m @toledss
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 👀 I’m interested in: call of duty cold war 🤑
+- 🌱 I’m currently learning: programação
+- 📫 How to reach me: zip zop
 - 😄 Pronouns: ele/dele
-- ⚡ Fun fact: ...
 
 <!---
 toledss/toledss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
