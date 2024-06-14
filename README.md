@@ -1,1 +1,1 @@
-https://tenor.com/pt-BR/view/dancing-luci-eric-andré-disenchantment-b-boy-dance-gif-2588362169845757982
+<div class="tenor-gif-embed" data-postid="2588362169845757982" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/dancing-luci-eric-andr%C3%A9-disenchantment-b-boy-dance-gif-2588362169845757982">Dancing Luci GIF</a>from <a href="https://tenor.com/search/dancing-gifs">Dancing GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
